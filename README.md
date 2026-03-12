@@ -1,2 +1,2 @@
 # AstraArcade
-Unblocked games for school
+Games games for school
